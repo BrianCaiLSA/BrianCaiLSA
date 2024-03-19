@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BrianCaiLSA 
+- 👋 Hi, I’m Brian Cai
 - 🏫 Highschool Co-op student
 - He/Him 👍
 -______________________
